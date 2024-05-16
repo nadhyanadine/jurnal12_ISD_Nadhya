@@ -1,1 +1,3 @@
-# jurnal12_ISD_Nadhya
+Nadhya Sigalingging
+607062300065
+47-02
